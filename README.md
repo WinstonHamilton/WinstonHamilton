@@ -1,7 +1,7 @@
 - 💖 Hi, I’m @WinstonHamilton.(I just think my English name is very cool🤪)
 - 👀 I’m interested in Metaverse,an immersive virtual world(I am sure it will change our life completely,Let's soar in it🤩).
 - 🌱 I’m currently learning Programming and school courses😎,and my major is communication engineering😼.
-- 🤗 I’m looking to collaborate on Advanced compression technology and 3D image processing algorithm🫡(大佬快带我飞)
+- 🤗 I’m looking to collaborate on Advanced compression technology and 3D image processing algorithm,intelligent audio real-time translation🫡(大佬快带我飞)
 - 📫 How to reach me C13509902@gmail.com
 
 <!---
